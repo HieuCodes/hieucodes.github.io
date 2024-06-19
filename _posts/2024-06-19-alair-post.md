@@ -7,7 +7,7 @@ tags: [alair]
 author: Hieu Hoang
 ---
 
-![Alair](https://circuitbloom.com/assets/img/alair.jpg)
+![Alair](https://circuitbloom.net/assets/img/alair.jpg)
 
 Alair is amazing. It's funny, but I didn't know that until I found out he was going to die. That it was going to happen soon. That it was real. Then I thought about a lot of stuff. Things I hadn't thought about for a long time.  I guess I kind
 of took him for granted or something.  I mean, Alair is just always there.  You expect him to always be bugging you
