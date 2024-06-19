@@ -43,14 +43,13 @@ He gets a lot of practice at home, that's for sure.
 
 
 The whole time I've been in high school (I'm a sophomore) I've always had to
-hear what other kids thought of him. I was always Mr.Wong's friend.
+hear what other kids thought of him. I was always Mr. Wong's friend.
 (Sometimes they call him Mr. Wonger which is the name of the totally loser
 shoes he always wears).  Some kids dissed him just to get on my nerves.
 Some kids just dissed him period because that's what you do with teachers.
 The thing is though, he expects everyone to do their best just like he does,
 and when you don't try your hardest he doesn't cut you any slack. That's
-how he is at home and at school.  I only just figured out what a good qual-
-ity that is. That's what makes him brave in his cancer battle and what
+how he is at home and at school.  I only just figured out what a good quality that is. That's what makes him brave in his cancer battle and what
 made me brave, too when I was younger.  Whether I wanted to be or not.
 Anyway, I always just wanted to be some regular kid in school but because of
 Alair being a teacher there I was different.  I realize two things now.
@@ -75,8 +74,7 @@ a surprise baby (who is now Holly and even though she's a newborn baby she's
 actually cute) and Alair had an extra job after school to try to help pay
 all the regular bills. And that was before he got his diagnosis.  We don't
 have a lot of money but we were doing okay until all the medical bills.  And
-Alair is pretty proud - okay, really proud - and doesn't want to take char-
-ity.  That's why I'm doing this.  Not because I want to make him mad or
+Alair is pretty proud - okay, really proud - and doesn't want to take charity.  That's why I'm doing this.  Not because I want to make him mad or
 upset, but because I want him to have a fighting chance no matter what.
 
 
@@ -89,6 +87,6 @@ around and we want him to try everything he can to stay with us as long as
 possible. This surgery is the one chance there is to save his life.  And we
 can't afford it. And every day that goes by is one less day I'll have with
 him. And I don't want to tell my little sister about Alair.  I want her to
-know him for herself
+know him for herself.
 
 
