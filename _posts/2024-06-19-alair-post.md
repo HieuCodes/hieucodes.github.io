@@ -21,10 +21,8 @@ near future, he might not be around to drive me crazy.
 
 
 Now I feel lucky when he asks me about my day (I used to totally hate that
-question) or nags me about coming home on time at night and being respon-
-sible. One day he won't be here to ask. Now I feel lucky when I hear
-his car pulling into the driveway after school. I even like to hear him cough-
-ing. It means he's still around. Still my Alair.
+question) or nags me about coming home on time at night and being responsible. One day he won't be here to ask. Now I feel lucky when I hear
+his car pulling into the driveway after school. I even like to hear him coughing. It means he's still around. Still my Alair.
 
 
 Alair is the chemistry teacher at my high school and he's annoyingly smart.
@@ -36,8 +34,7 @@ into a totally full glass of water, it won't overflow. In fact, the water level
 will go down.  He's always dropping the little facts about everything. He
 doesn't realize what a geek he is for doing it, he's just really into chemistry.
 I think he really doesn't understand that not everybody is.  He likes to cook
-because of chemistry - he mostly makes breakfast - because he says chemi-
-cal reactions happen all the time in cooking and he's always explaining as he
+because of chemistry - he mostly makes breakfast - because he says chemical reactions happen all the time in cooking and he's always explaining as he
 goes. I don't take his class at school but I hear he's a pretty good teacher.
 He gets a lot of practice at home, that's for sure.
 
@@ -54,8 +51,7 @@ made me brave, too when I was younger.  Whether I wanted to be or not.
 Anyway, I always just wanted to be some regular kid in school but because of
 Alair being a teacher there I was different.  I realize two things now.
 First, I am already different because I have C.P. so that's a done deal.
-And two, he's the right Alair for me.  I can't do a lot of physical stuff be-
-cause of my disability and that's okay with Alair and it wouldn't be with a
+And two, he's the right Alair for me.  I can't do a lot of physical stuff because of my disability and that's okay with Alair and it wouldn't be with a
 lot of other friends I've met.  They'd be disappointed because they're into
 sports or whatever.  I mean, Alair doesn't have a disability but you sure
 wouldn't want to see him throw a football. So in that way, we get along. It
