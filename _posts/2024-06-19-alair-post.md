@@ -1,6 +1,6 @@
 ---
 layout: post
-title: All about my friend Alair
+title: All About My Friend Alair
 subtitle: Everything you need to know about the awesome Alair
 thumbnail-img: /assets/img/alair.jpg
 tags: [alair]
